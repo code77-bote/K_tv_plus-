@@ -11,5 +11,8 @@ free anime and k drama, download app for watch now,
 
 ![free Korean drama](https://play-lh.googleusercontent.com/l_97xkuZVN9JoP30MKZV0ioRQKtTymnY3_UT_XCyhka1WCv97UjLAvegKrHqSIoCJJz7=w1052-h592-rw)
 ![free anime](https://play-lh.googleusercontent.com/huySvoDl7hwOgeeAAV6J3urCtBmiQDfCvSpp9JMGm9EPcomx3FR0mn2BARkJPHhoAPI=w1052-h592-rw)
+![k tv+](https://play-lh.googleusercontent.com/C1l7JhZ1VCS8k3MYijb7u4opoPgqaO4Poiq6ry1aZ-YNhDluCpWJoR8aGzql6FSxrI-K=w1052-h592-rw)
 
-[DOWNLOAD APP]()
+# Download app
+
+[K tv+ on playstore]()
