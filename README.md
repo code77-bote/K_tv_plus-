@@ -15,4 +15,12 @@ free anime and k drama, download app for watch now,
 
 # Download app
 
-[K tv+ on playstore]()
+[K tv+ on playstore](https://play.google.com/store/apps/details?id=k.revenge.k_revenge)
+
+
+
+---
+
+# App icon
+
+![k tv+](https://play-lh.googleusercontent.com/k62INoXsv9T9gLP8F6qVe3Ko0Srx3CRN_RasfRJXShYuqW8S_rkQFXXY8B1OO53fkwI=w480-h960-rw)
